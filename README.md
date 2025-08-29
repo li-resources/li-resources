@@ -1,4 +1,4 @@
-## LI Resources
+## LI Resources ⭐
 __Providing high-quality resources just for you.__ 🚀
 
 Welcome to LI Resources discord server, a place where you can chat with our community and get the latest information (such as updates, releases, sales, etc.) regarding us. LI Resources stands for "**Lurvorx**'s *and* **IzzTeyy**'s **Resources**". Together we are a developer team developing FiveM resources to people seeking for high-quality resources.
